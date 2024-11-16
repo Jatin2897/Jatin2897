@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Jatin2897
 - 👀 I’m interested in travelling and exploring new places 
-- 🌱 I’m currently learning Web developement
-- 💞️ I’m looking to collaborate on 
+- 🌱 I’m currently working at Axxela as a trainee analyst
 - 📫 You can reach me through my insta id jatingarg765.
